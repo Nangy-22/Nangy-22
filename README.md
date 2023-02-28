@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Nangy-22
-- 🌱 I’m currently learning and earning my Web Designa and Development Diploma.
+- 🌱 I’m currently learning and earning my Web Design and Development Diploma.
