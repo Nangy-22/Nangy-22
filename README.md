@@ -1,2 +1,4 @@
 - 👋 Hi, I’m @Nangy-22
 - 🌱 I’m currently learning and earning my Web Design and Development Diploma.
+- 🔥 While I'm new to Web D&D, I come fully loaded with a serious background in Accounting, Business Management, Project Management, and Enterprise Risk Management.
+- 🐤 Yes, I'm seasoned but I am willing to work my way to becoming an awesome developer. I have always loved technology and want the spend the next phase of my career doing what I love - coding!
