@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Nangy-22
-- 🌱 I’m currently learning and earning my Web Design and Development Diploma.
-- 🔥 While I'm new to Web D&D, I come fully loaded with a serious background in Accounting, Business Management, Project Management, and Enterprise Risk Management. Coding is the next step in my career - which is my long-term professional journey determined by my passions.
+- 🌱 I’ve earned my Web Design and Development degree, and am staying current with the latest trends in technology.
+- 🔥 With a Web Design and Development degree, I come fully loaded with a serious background in Accounting, Business Management, Project Management, and Enterprise Risk Management. Coding is the next step in my career - which is my long-term professional journey determined by my passions.
 - 🐤 I may be starting in the coding game, but I bring my career with me. I want to learn everything I can about coding!
